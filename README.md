@@ -1,0 +1,2 @@
+# MiniProject2_HanaMedhat_MohamedBahgat
+Advanced Media Lab MiniProject2_HanaMedhat_MohamedBahgat
